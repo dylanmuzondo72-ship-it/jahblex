@@ -27,6 +27,11 @@ Drag the entire folder into Netlify Drop, or connect the GitHub repository.
 
 Public social profiles and posts confirm the comedy, skit-making and brand-ambassador work referenced in the article. The real name **Tawananyasha Katsande** and the professional description **brand advisor** were supplied for the profile.
 
+## Contact
+
+- Phone / WhatsApp: +27 60 681 9440
+- WhatsApp: https://wa.me/27606819440
+
 ## Public links included
 
 - Instagram: https://www.instagram.com/head_boy_wekubhawa/
